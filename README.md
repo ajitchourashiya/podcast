@@ -15,4 +15,14 @@ source text that is being summarized
 ![5](https://github.com/ajitchourashiya/podcast/assets/123857539/3990525c-5f36-43c2-b3ce-1c6d199ffeed)
 ![4](https://github.com/ajitchourashiya/podcast/assets/123857539/7c3d3878-29b1-461f-a07f-408f6fc359b0)
 
-![1_1](https://github.com/ajitchourashiya/podcast/assets/123857539/ab2ba3f1-fcc6-4bbf-ba33-5ada922e32f1)
+![image](https://github.com/ajitchourashiya/podcast/assets/123857539/0b7a0fc5-dacb-4dd1-a6a2-063318ad1439)
+
+![image](https://github.com/ajitchourashiya/podcast/assets/123857539/b3cb8d11-8c1e-443e-8682-f0794f640190)
+![image](https://github.com/ajitchourashiya/podcast/assets/123857539/eb683924-1acc-411a-9f07-3adf29bb813d)
+![image](https://github.com/ajitchourashiya/podcast/assets/123857539/4c9ffa60-02ee-460e-bfe9-051ec13c06b5)
+![image](https://github.com/ajitchourashiya/podcast/assets/123857539/6944bb54-a368-4733-a0c7-7bda4d628ebc)
+
+
+
+
+
